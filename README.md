@@ -12,7 +12,7 @@
 
 <br>
 
-[![@Pao Quijije ](https://img.icons8.com/fluency/48/000000/instagram-new.png "@Pao Quijije ")](https://www.instagram.com/poly02q?igsh=cmY4cXFkYW92cTl0) [![@Pao Quijije ](https://img.icons8.com/fluency/48/000000/facebook.png "@Pao Quijije ")](https://www.facebook.com/marilyn.quijije.58?locale=es_LA) [![@Pao Quijije ](https://img.icons8.com/fluency/48/000000/linkedin.png "@paola quijije")](https://www.linkedin.com/in/paola-quijije-bba0b8339/) [![@paola quijije](https://img.icons8.com/fluency/48/000000/twitter-squared.png "@Paola Quijije")](https://x.com/poli1902) [![@poli1902]
+[![@Pao Quijije ](https://img.icons8.com/fluency/48/000000/instagram-new.png "@Pao Quijije ")](https://www.instagram.com/poly02q?igsh=cmY4cXFkYW92cTl0) [![@Pao Quijije ](https://img.icons8.com/fluency/48/000000/facebook.png "@Pao Quijije ")](https://www.facebook.com/marilyn.quijije.58?locale=es_LA) [![@Pao Quijije ](https://img.icons8.com/fluency/48/000000/linkedin.png "@paola quijije")](https://www.linkedin.com/in/paola-quijije-bba0b8339/) [![@paola quijije](https://img.icons8.com/fluency/48/000000/twitter-squared.png "@poli1902")](https://x.com/poli1902) 
 
 <br>
 
